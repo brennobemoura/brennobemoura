@@ -1,4 +1,4 @@
-### ❤️ In ethernal love with declarative programming
+### ❤️ In eternal love with declarative programming
 
 You can reach me at:
 
